@@ -1,1 +1,1 @@
-# Here are my studies project for the MIREA
+# Here are my studies projects for the MIREA
